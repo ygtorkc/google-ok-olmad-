@@ -1,0 +1,1 @@
+# google-ok-olmad-
